@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ilovepuddingcup
-- 👀 I’m interested in EATING GOOD FOOD AND ROMANTIC VISUAL NOVELS
+- 👀 I’m interested in LEARNING TO USE KOBOLD AI FOR JANITOR AI
 - 🌱 I’m currently learning how to use kobold ai plz help me
 - 💞️ I’m looking to collaborate on im not
 - 📫 How to reach me: you dont
